@@ -1,4 +1,4 @@
 # kokoa clone 2020 update
 
 alls good good
-never mind mind
+never mind oh nono
